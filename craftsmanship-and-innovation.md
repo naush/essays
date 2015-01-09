@@ -1,4 +1,4 @@
-Craftsmanship and Innovation
+### Craftsmanship and Innovation
 
 One of the great strengths of "The World's Factory" is the ability to quickly pirate popular consumer products and resell them for significantly lowered price. While we don't generally associate this practice with our idea of innovation, I wonder if perhaps it does bring a small dose of improvements over the original production design and process?
 
